@@ -1,6 +1,5 @@
 **Team Members**
 Tijani Tatu
-
+Garang 
 Winstone Were
-
-Chikuro Mbaji
+Chikuro Emmmanuel 
